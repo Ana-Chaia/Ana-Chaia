@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ana-Chaia
 - 👀 I’m interested in learning some new tools o/
-- 🌱 I’m currently a pisciner at 42 São Paulo :D
+- 🌱 I’m currently a cadet at 42 São Paulo :D
 
 
 
